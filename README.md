@@ -7,5 +7,12 @@ https://www.figma.com/proto/N8D8Mt9uBsUoGR4Op2vVyX/Amazon?page-id=3%3A10&node-id
 ![Screenshot 2025-02-04 023644](https://github.com/user-attachments/assets/970e0702-f5f4-4bce-a1f7-903eb465b76c)
 
 
+
 ![Screenshot 2025-02-08 173328](https://github.com/user-attachments/assets/993022dd-be36-4ce7-b273-abde3ebb5969)
+
+
+
+
+
+
 ![Screenshot 2025-02-08 173336](https://github.com/user-attachments/assets/29a750cb-074f-49f3-8285-349b24ed41d8)
